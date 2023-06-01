@@ -1,4 +1,4 @@
-![](https://github.com/breitburg/curve/assets/25728414/eb0e924a-39da-42d1-9faf-e3b49d8b5e24)
+![](https://github.com/breitburg/curve/assets/25728414/1c1016dd-3544-43d0-9094-0d1f6ea1bd6c)
 
 # Curve
 
